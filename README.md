@@ -1,1 +1,0 @@
-# MALL_KITTY
